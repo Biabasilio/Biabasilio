@@ -9,3 +9,6 @@ Meu nome é Beatriz
 ### Você pode entrar em contato comigo 📬
 
 beatrizbsilio587@gmail.com
+
+![](https://media.tenor.com/v0FhxoZtDXsAAAAi/peach-goma-peach-and-goma.gif)
+
